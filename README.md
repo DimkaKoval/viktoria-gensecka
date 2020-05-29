@@ -1,1 +1,1 @@
-# viktoria-gensecka.github.io
+# dimkakoval.github.io/viktoria-gensecka/
